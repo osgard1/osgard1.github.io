@@ -7,3 +7,5 @@ Das Böse, eine riesige Kugel, die auf die Erde zurast, hat sich mit Jean-Baptis
 
 Zorg said:
 > You bloody ice cream!
+
+<img src="https://www.google.com/url?sa=i&url=https%3A%2F%2Fvillains.fandom.com%2Fwiki%2FJean-Baptiste_Emanuel_Zorg&psig=AOvVaw1aXSA5SeUGbIT76kHVZVP8&ust=1592935856947000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCKj0k9CCluoCFQAAAAAdAAAAABAD"/>
