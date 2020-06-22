@@ -4,3 +4,6 @@ Das Böse, eine riesige Kugel, die auf die Erde zurast, hat sich mit Jean-Baptis
 * crazy
 * greedy
 * destroyable
+
+Zorg said:
+> You bloody ice cream!
